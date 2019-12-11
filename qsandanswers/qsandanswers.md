@@ -1,1 +1,1 @@
-Queen of hell
+Queen of hell!
